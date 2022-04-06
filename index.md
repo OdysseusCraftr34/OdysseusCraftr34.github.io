@@ -1,4 +1,4 @@
-## Welcome To Ody's Hentai Game Directory
+## Welcome To The Hentai Games Unlimited Master Directory
 
 This site is where you can find all my Hentai and porn games. If you want to see my first project then take a look at Tentacle Universe!
 
