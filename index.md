@@ -5,4 +5,5 @@ This site is where you can find all my Hentai and porn games. If you want to see
 [Join my Discord Server](https://discord.gg/7JbYuC3zpU)
 
 
-#### Be Aware this site is in HEAVY development
+
+#### This site is being Shutdown in favor of our other site for our Comany. Gamebop Studio's
